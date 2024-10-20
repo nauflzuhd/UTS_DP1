@@ -1,0 +1,1 @@
+//ketik kode jawaban no 2 kamu disini
